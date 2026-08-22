@@ -1,2 +1,13 @@
-# sekinat-portfolio
-A professional portfolio showcasing UGC videos, GRWM content, product reviews, beauty, skincare, and lifestyle content for brand collaborations.
+# Sekinat Portfolio
+
+## Collaboration
+For brand collaborations, contact:
+
+- Email: sekinatr072@gmail.com
+
+## Socials
+- TikTok: https://www.tiktok.com/@waityksekinz
+- Instagram: https://www.instagram.com/sekinat7334
+
+## Tags
+ugc, skincare, lifestyle, collaboration
