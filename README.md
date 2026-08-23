@@ -1,7 +1,7 @@
 SEKINAT — BEAUTY & LIFESTYLE CREATOR
 
 UGC • GRWM • PRODUCT REVIEWS
-
+GITHUB account: sekinat1 
 Hi, I'm Sekinat, a beauty, skincare and lifestyle content creator passionate about creating authentic, engaging and visually appealing short-form content for brands.
 
 I create content that helps products feel relatable, exciting and natural to potential customers.
@@ -63,4 +63,29 @@ Authentic • Creative • Relatable • Beauty-focused • Engaging
 
 
 Contact: sekinatr072@gmail.com
-thank you 
+✨ Sekinat Raji — Content Creator & UGC Creator
+
+Hi! I’m Sekinat Raji, a beauty and lifestyle content creator based in Nigeria.
+
+I create engaging, high-quality content focused on:
+
+- 💄 GRWM (Get Ready With Me)
+- 🧴 Skincare & Beauty
+- 🎥 Lifestyle Vlogs
+- 📸 Product Features & Reviews
+- ✨ UGC Content
+
+📱 My Social Media
+
+TikTok: 300 followers
+Instagram: 37 followers
+
+I focus on creating clean, creative and engaging content that helps beauty and lifestyle brands showcase their products in a natural and appealing way.
+
+💎 Why Work With Me?
+
+I care about creating content that feels natural, visually appealing and relatable. I’m passionate about beauty, skincare and lifestyle content and enjoy finding creative ways to present products to an audience.
+
+I’m open to working with beauty, skincare, fashion and lifestyle brands through UGC, gifted collaborations and paid collaborations.
+
+Thank you for visiting my portfolio! 
