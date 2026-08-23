@@ -1,55 +1,65 @@
-SEKINAT — CREATOR PORTFOLIO
+SEKINAT — BEAUTY & LIFESTYLE CREATOR
 
-# Content Examples
+UGC • GRWM • PRODUCT REVIEWS
 
-🎥 UGC Videos
+Hi, I'm Sekinat, a beauty, skincare and lifestyle content creator passionate about creating authentic, engaging and visually appealing short-form content for brands.
 
-I create natural, engaging UGC-style videos that showcase products in a relatable and visually appealing way.
+I create content that helps products feel relatable, exciting and natural to potential customers.
 
-Content style: Product demonstrations • Lifestyle content • Short-form videos
+---
+
+🎥 CONTENT EXAMPLES
+
+UGC Videos
+
+Short-form videos that naturally showcase products and communicate their benefits in an engaging way.
 
 ✨ GRWM Content
 
-Get-ready-with-me content featuring beauty, skincare, fashion and lifestyle products naturally incorporated into my routine.
-
-Content style: GRWM • Beauty content • Lifestyle storytelling
+Beauty, skincare, fashion and lifestyle products incorporated naturally into GRWM-style content.
 
 💄 Product Reviews
 
-Authentic product-focused content that highlights the product experience and key features in an easy-to-understand way.
-
-Content style: Reviews • First impressions • Product demonstrations
+Authentic product-focused videos featuring first impressions, demonstrations and product experiences.
 
 ---
 
-## About Me
-
-Hi, I'm Sekinat, a beauty, skincare and lifestyle content creator passionate about creating engaging short-form content for brands.
-
-I enjoy turning products into creative, relatable content that catches attention and connects with viewers.
-
----
-
-## What I Create
+💗 WHAT I CAN CREATE FOR YOUR BRAND
 
 - UGC videos
-- GRWM content
-- Product reviews
 - Product demonstrations
+- Product reviews
+- GRWM videos
+- Unboxing content
 - Beauty & skincare content
 - Lifestyle content
+- Social-media-ready short-form videos
 
 ---
 
-## Let's Collaborate 🤍
+🌸 MY SOCIALS
 
-I'd love to create authentic and creative content for your brand.
+🎵 TikTok: "@waityksekinz" (https://www.tiktok.com/@waityksekinz)
 
-TikTok: https://www.tiktok.com/@waityksekinz
-Instagram: https://www.instagram.com/sekinat7334
+📸 Instagram: "@sekinat7334" (https://www.instagram.com/sekinat7334/)
 
-Available for: UGC • Product Reviews • Brand Collaborations
+---
 
-Let's create something amazing together!
+🤝 LET'S COLLABORATE
+
+I'm open to working with beauty, skincare, fashion and lifestyle brands that are looking for creative short-form content.
+
+Interested in collaborating?
+
+📩 Please contact me through my social media or email.
+
+Let's create something amazing together! ✨
+
+---
+
+📌 CONTENT STYLE
+
+Authentic • Creative • Relatable • Beauty-focused • Engaging
+
 
 Contact: sekinatr072@gmail.com
