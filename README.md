@@ -63,3 +63,4 @@ Authentic • Creative • Relatable • Beauty-focused • Engaging
 
 
 Contact: sekinatr072@gmail.com
+thank you 
